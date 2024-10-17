@@ -1,4 +1,4 @@
-<a href=""><img width="auto" heigth="50px" src="https://www.canva.com/design/DAGTqQ6P45U/sMRFj4zwxl1StSw_UprtRA/view?utm_content=DAGTqQ6P45U&utm_campaign=designshare&utm_medium=link&utm_source=editor"></a>
+<a href=""><img width="auto" heigth="50px" src="https://media.licdn.com/dms/image/v2/D4D16AQECGGhc071k9g/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1729014118599?e=1734566400&v=beta&t=UiI7-jnnIPNAFj-ltulVVrHRLHRUWe_HefQdQo55lww"></a>
 
 
 # João Bruno Souza 
